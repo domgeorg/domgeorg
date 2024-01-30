@@ -101,5 +101,3 @@ https://github.com/domgeorg/domgeorg/assets/11994115/f0e898c4-7052-4bd6-ad1f-cad
 ### Hobbies 🏋️‍♂️🎧
 - Powerlifting
 - Listening to Audiobooks
-
-For more details, feel free to contact me at domgeorg@outlook.com.gr or +306979454138.
